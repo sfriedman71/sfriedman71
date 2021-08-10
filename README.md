@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @sfriedman71
+- 👀 I’m interested in crypto and web3
+- 🌱 I’m currently learning crypto and web3
+- 💞️ I’m looking to collaborate on crypto and web3
+- 📫 How to reach me sfriedman71@yahoo.com
